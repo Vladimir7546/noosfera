@@ -1,0 +1,2 @@
+# noosfera
+noosfera noos vion
